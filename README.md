@@ -18,7 +18,7 @@ Writing! Sometimes can take me a minute to organize my thoughts and put them on 
 I'm notorious for letting the battery on my devices run down and I have to scramble to get a charger in its last few minutes of juice.
 I have bouts where I struggle with pain and fatigue and have to take breaks to restore myself. I also sometimes don't take those breaks right when I need to, and opt to push through and I end up completely spent.  I'm working on it. "If you don't make time for your wellness, you will be forced to make time for your illness" "if you don't pick a day to relax, your body will pick it for you"
 
-## My Likes ##
+## :heart_eyes:	My Likes ##
 Rest, prioritizing my health and wellbeing. I'm working on it (see above) I'm working on practicing vulnerability and 
 authenticity  - resisting respectability.
 Music - a range of genres, but I will sometimes play my soca playlist in the morning to get hype and do a little shimmy while on the TTC. I sometimes hum while I'm working. I love reading for pleasure, but it's rare these days that I actually do.  I've had to return quite a few books to the library before finishing them, and I am that person who tries to push a day or two after the due date to get as far as I can.  I'm so thankful that they eliminated late fees :rofl:
