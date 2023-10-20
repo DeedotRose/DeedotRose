@@ -46,11 +46,11 @@ Injustice; erasure; medical bias, racism and gaslighting; bad food, especially i
 - I will ask questions for clarity and to make sure that I'm doing things correctly or moving in the right direction.
 - I welcome feedback and correction so I can course correct when necessary.
 ## ##
- <details> <summary> <b><h2>:open_book:	Additional Fun Facts</h2></b> </summary>
+ <details> <summary> <b><h2>:open_book:	Additional Fun Facts </h2></b> (tap on the arrow) </summary>
 <li> I've been living in Toronto since 2011. </li>
-<li> I like to travel internationally, though I haven't done much since COVID-19 entered the chat. My (close) family is everywhere but Canada, so it's a necessity, but it also means I haven't seen a lot of folks for many years :frowning_face:. </li>
-<li> I'm from Queens, NY and I had a Queens accent as a kid. My mom is Jamaican and my dad is Zimbabwean and that, plus moving in and out of the US a few times as a kid led to the loss of that accent. What's left is a generic American accent that I can slip out of when I'm speaking a different language.</li>
-<li> I speak un poco Espa&ntilde;ol which I've been studying for a few years.  I recently became good at it because of the influx of Spanish speaking newcomers that I interacted with in my previous employment.  I'm hoping I can keep it up.</li>
+<li> I like to travel! I haven't done much internationally since COVID-19 entered the chat, except to cross the border to visit my mom. My (close) family is everywhere but Canada, so it's a necessity, but it also means I haven't seen a lot of folks for many years :frowning_face:. </li>
+<li> Queens, NY is my hometown/homeborough and I had a Queens accent as a kid. My mom is Jamaican and my dad is Zimbabwean and that, plus moving in and out of the US a few times as a kid and learning and unlearning other accents led to the loss of the Queens accent. What's left is a generic American accent that I can slip out of if I'm speaking a different language.</li>
+<li> I speak un poco Espa&ntilde;ol which I've been studying for a few years.  I recently became good at it because of the influx of Spanish speaking newcomers that I interacted with in my previous employment.  I'm hoping I can keep it up. I also speak a little Shona, one of Zimbabwe's languages, and while I only sometimes speak Patois, I am well versed and immersed when I'm with my Jamaican family. </li>
 </ul>
   <br><br>
 </details>
